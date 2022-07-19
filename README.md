@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @Ly0kami #
+# 👋 Hi, I’m schleepy #
 
 ## Didn't want anyone around but you're still welcome. ##
 
